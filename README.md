@@ -17,5 +17,5 @@ I am a passionate 2nd-year Information Technology student from Tamil Nadu, focus
 ---
 
 ## Contact
-- Email: amdhanam2004@gmail.com
-- LinkedIn: www.linkedin.com/in/dhanaaa28 
+- Email: brundha17.2006@gmail.com
+- LinkedIn: www.linkedin.com/in/brundha17
